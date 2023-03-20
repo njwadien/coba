@@ -1,2 +1,5 @@
 # coba
 coba coba
+NAMA: NAJWA ADINDA
+NRP : 162021041
+KELAS : BB
